@@ -54,3 +54,7 @@ As always, please feel free to make inquiries when you don't understand the deci
 I am always open to discussions, and would love to understand your point of view.
 Valid complaint is something like: "I haven't gotten loot because Cuppie has me on ignore."
 Just don't come to me with, "My fee-fee are hurt" you snowflakes.
+
+> TLDR
+
+Install the new Addon, do your Droptimizers.
